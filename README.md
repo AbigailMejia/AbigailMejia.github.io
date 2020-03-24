@@ -1,4 +1,4 @@
-# AbigailMejia.github.io
+# AbigailMejia y LigiaCastillo
 pagina web de moda
 # Dior
 Christian Dior, S.A. (más conocida como Dior) es un minorista de ropa francés, bajo control del grupo LVMH. La compañía fue fundada por el diseñador de moda Christian Dior.
